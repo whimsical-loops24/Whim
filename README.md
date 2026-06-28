@@ -1,5 +1,6 @@
 About Whimsical Loops
 My Story: Magic, Memories, and a Single Ball of Yarn
+
 At Whimsical Loops, I believe that a simple ball of yarn is actually a bundle of pure magic just waiting to happen! What started as a total fascination with how a single, humble strand of thread could transform into a cuddly friend quickly became my favorite way to dream out loud.
 
 While I officially launched Whimsical Loops in August 2024, my crochet adventure actually started a long, long time ago. You could say loops and stitches run right through my family's veins!
